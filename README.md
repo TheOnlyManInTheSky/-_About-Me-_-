@@ -3,7 +3,7 @@
 ![Image Alt](https://private-user-images.githubusercontent.com/282679900/589155964-8d75b416-835d-4d7e-80a7-0a11141f2163.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzgxODY4MzAsIm5iZiI6MTc3ODE4NjUzMCwicGF0aCI6Ii8yODI2Nzk5MDAvNTg5MTU1OTY0LThkNzViNDE2LTgzNWQtNGQ3ZS04MGE3LTBhMTExNDFmMjE2My5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTA3JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwN1QyMDQyMTBaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1mY2QzYzU1YWYzODNmMzllNzBjYmEyYTMwOWUwYzVlMDkzMWUzN2ZkOTM2NDA3ZmEwNTFiMDM3YWRhYjg4NThiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.ti9mJe1PjXXHQtMo2lVv5Egor7_0XFwEZQRLohDeC7I)
  • due to being a homelander fictionkin, somethings will make me tick. be aware and be mindful that i can get angry out of nowhere.
  
- • my ponies are not to be copied but can be inspirational.
+ • my ponies are not to be copied, they aren't great anyways.
  
  • i prefer people come to me, i don't make first moves. be aware if you're interested. 
 
