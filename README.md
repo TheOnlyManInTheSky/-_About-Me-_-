@@ -5,7 +5,7 @@
  
  • my ponies are not to be copied, they aren't great anyways.
  
- • i prefer people come to me, i don't make first moves. be aware if you're interested. 
+ • i prefer people come to me, i don't make first moves when it comes to making friends.
 
 
 
