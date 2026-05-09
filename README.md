@@ -62,7 +62,7 @@ sign the guest book!
   
 <p align="center">
   <a href="https://onlymaninthesky.atabook.org">
-    <span style="font-size:30px;"><b>ata</b></span>
+    <span style="font-size:30px;"><b>"Yummers"</b></span>
   </a>
 
 ![Image Alt](https://files.catbox.moe/tsh862.png)
