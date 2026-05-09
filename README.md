@@ -1,10 +1,10 @@
-![Image Alt](https://files.catbox.moe/12dree.png)
-
-![Image Alt](https://files.catbox.moe/skp30t.png)
-
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic&label=HOME+TEAMERS&color=B31942">  
 </p>
+
+![Image Alt](https://files.catbox.moe/12dree.png)
+
+![Image Alt](https://files.catbox.moe/skp30t.png)
 
 ![Image Alt](https://files.catbox.moe/zzhgmq.png)
 ![Image Alt](https://files.catbox.moe/69edf8.png)
