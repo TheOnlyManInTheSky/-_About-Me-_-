@@ -56,9 +56,7 @@ bioshock , The Boys , Invincible
 Roblox , Art and Design.
 </p>
 
-<p align="center">
 ![Image Alt](https://files.catbox.moe/z2vuum.png)
-</p>
 
 <p align="center">
 sign the guest book!
