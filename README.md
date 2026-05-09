@@ -1,5 +1,4 @@
-![](https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic)
-![](https://komarev.com/ghpvc/?username=your-github-username&label= +HOMETEAMERS+)
+![](https://komarev.com/ghpvc/?username=your-github-username&label=HOME+TEAMERS)
 
 ![Image Alt](https://files.catbox.moe/12dree.png)
 
