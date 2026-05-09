@@ -10,7 +10,7 @@
 ' ' Howdy! i'm john , a homelander fictkin! ' '
 </p>
 
-![Image Alt](https://files.catbox.moe/69edf8.png)
+![Image Alt](https://files.catbox.moe/m261wg.gif)
 
 
 <p align="center" width="100%">
