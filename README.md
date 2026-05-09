@@ -3,18 +3,6 @@
 ![alt-text-1](https://files.catbox.moe/0m8ix4.png) ![alt-text-2](https://files.catbox.moe/9om19c.png)
 
 
-<p>
-<img src="" >
-<img src="" >
-</p>
-
-
-
-
-![alt-text-1](https://files.catbox.moe/f51ae4.webp) ![alt-text-2](https://files.catbox.moe/4ykr2a.webp)
-
-
-
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+Australia+VIC+WA+NT+Hand+Guides&pause=1000&color=860711&repeat=false&width=435&lines="No+YOU+are+all+heroes+today,+haha!%22)](https://git.io/typing-svg)
 
 
