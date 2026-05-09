@@ -27,7 +27,7 @@
 || FF to sit, cuddle or chat with me ! || 
 </p>
 <p align="center">
-i have anger issues, so please be mindful.
+i have anger issues, be mindful.
 </p>
 
 ![Image Alt](https://files.catbox.moe/12dree.png)
