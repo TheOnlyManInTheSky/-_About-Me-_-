@@ -19,7 +19,7 @@
 
 
 <p align="center">
-── ⋆⋅ ![Image Alt](https://files.catbox.moe/m261wg.gif)⋅⋆ ──
+![Image Alt](https://files.catbox.moe/m261wg.gif)
 do not copy any of my skins. 
 sucker for affection , ff to cuddle 
 severe anger issues and severe grudges
