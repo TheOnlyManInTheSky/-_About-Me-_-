@@ -17,13 +17,18 @@
 <p align="center" width="100%">
     <img width="5%" <img size=1 src="https://files.catbox.moe/m261wg.gif">
 </p>
-
-
 <p align="center">
     ──── ⋆ ────
 </p>
-
-
+<p align="center">
+ Dnc my ponies please!! 
+</p>
+<p align="center">
+|| FF to sit, cuddle or chat with me ! || 
+</p>
+<p align="center">
+i have anger issues, so please be mindful.
+</p>
 
 ![Image Alt](https://files.catbox.moe/12dree.png)
 
