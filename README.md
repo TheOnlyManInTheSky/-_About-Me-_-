@@ -14,7 +14,7 @@
 
 
 <p align="center" width="100%">
-    <img width="33%" <img size=50 src="https://files.catbox.moe/v0gvkj.png">
+    <img width="33%" <img size=50 src="https://files.catbox.moe/77mq6m.png">
 </p>
 
 <p align="center" width="100%">
