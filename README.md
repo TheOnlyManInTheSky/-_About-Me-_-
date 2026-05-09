@@ -10,9 +10,6 @@
 ' ' Howdy! i'm john , a homelander fictkin! ' '
 </p>
 
-
-
-
 <p align="center" width="100%">
     <img width="33%" <img size=50 src="https://files.catbox.moe/2rkel2.png">
 </p>
