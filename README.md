@@ -1,5 +1,4 @@
-
-![](https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&color=B31942)
+<img src="https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic&label=HOME+TEAMERS&color=B31942">
 
 ![Image Alt](https://files.catbox.moe/zzhgmq.png)
 ![Image Alt](https://files.catbox.moe/69edf8.png)
