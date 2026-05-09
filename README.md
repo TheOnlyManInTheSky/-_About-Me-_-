@@ -21,7 +21,7 @@
 <p align="center">
 do not copy any of my skins. 
 sucker for affection , ff to cuddle 
-severe anger issues + severe grudges
+severe anger issues and severe grudges
 be cautious. 
 </p>
 
