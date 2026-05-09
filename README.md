@@ -2,9 +2,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+Australia+VIC+WA+NT+Hand+Guides&pause=1000&color=860711&repeat=false&width=435&lines="No+YOU+are+all+heroes+today,+haha!%22)](https://git.io/typing-svg)
 <p align="center">
 ' ' Howdy! i'm john , a homelander fictkin! ' '
-
-  ' ' No Dni, I block freely!! ' '
 </p>
-
+![](https://files.catbox.moe/2ekt97.gif) $${\color{#825FA3}1}$$
 
 ![Image Alt](https://private-user-images.githubusercontent.com/282679900/589810395-183fe781-6329-441e-80cc-e0fde7af530e.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzgyNzU3OTUsIm5iZiI6MTc3ODI3NTQ5NSwicGF0aCI6Ii8yODI2Nzk5MDAvNTg5ODEwMzk1LTE4M2ZlNzgxLTYzMjktNDQxZS04MGNjLWUwZmRlN2FmNTMwZS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTA4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwOFQyMTI0NTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1mZTAxMGUyY2QyNDRkNDU4ZjEyM2UxZjU1NjU1NjVjMmIzZGYzNjdiMjJhMjNkOTlhYjdkZjNlZTRlMTE3ZTFkJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.SGRKtp7MUCfga8252pH2xoj7oIq7pbJo8hR_v3BNrcs)
