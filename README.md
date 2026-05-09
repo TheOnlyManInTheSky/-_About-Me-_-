@@ -18,7 +18,7 @@
 </p>
 
 <p align="center" width="100%">
-    <img width="33%" <img size=50 src="https://files.catbox.moe/m261wg.gif">
+    <img width="10%" <img size=1 src="https://files.catbox.moe/m261wg.gif">
 </p>
 
 
