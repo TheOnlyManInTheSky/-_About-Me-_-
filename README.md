@@ -1,4 +1,5 @@
-<p align="center">![Image Alt (https://files.catbox.moe/7jfehf.gif)<img src="https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic&label=HOME+TEAMERS&color=B31942">![Image Alt](https://files.catbox.moe/rz4ll0.gif)  
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic&label=HOME+TEAMERS&color=B31942">  
 </p>
 
 ![Image Alt](https://files.catbox.moe/zzhgmq.png)
