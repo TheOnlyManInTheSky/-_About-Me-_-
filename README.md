@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&label=HOME%20TEAMERS&color=B31942&style=plastic" alt="TheOnlyManInTheSky" /> </p>
+![](https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&label=HOME%20TEAMERS&color=B31942&style=plastic" alt="TheOnlyManInTheSky"/> </p>
 
 ![Image Alt](https://files.catbox.moe/zzhgmq.png)
 ![Image Alt](https://files.catbox.moe/69edf8.png)
