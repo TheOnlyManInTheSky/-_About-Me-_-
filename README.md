@@ -45,13 +45,13 @@ i have anger issues, be mindful.
     ──── ⋆ ────
 </p>
 <p align="center">
-my interests consist of ->
+my interests consist of :
 </p>
 <p align="center">
 bioshock , The Boys , Invincible
 </p>
 <p align="center">
-Roblox , Art and Design.
+Roblox , Art and comics.
 </p>
 
 ![Image Alt](https://files.catbox.moe/z2vuum.png)
