@@ -11,10 +11,10 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ss45ovw53cd652i3mfy2ekxpju&cover_image=true&theme=novatorem&show_offline=true&background_color=551212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false">
+    <img src="spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ss45ovw53cd652i3mfy2ekxpju&cover_image=true&theme=novatorem&show_offline=true&background_color=551212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)"
   </a>
 </p>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ss45ovw53cd652i3mfy2ekxpju&cover_image=true&theme=novatorem&show_offline=true&background_color=551212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 
 
 <p align="center">
