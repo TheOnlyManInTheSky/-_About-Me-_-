@@ -17,6 +17,10 @@
     <img width="33%" <img size=50 src="https://files.catbox.moe/4ykr2a.webp">
 </p>
 
+<p align="center" width="100%">
+    <img width="33%" <img size=50 src="https://files.catbox.moe/m261wg.gif">
+</p>
+
 
 <p align="center">
 ![Image Alt](https://files.catbox.moe/m261wg.gif)
