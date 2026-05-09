@@ -57,7 +57,7 @@ Roblox , Art and comics.
 
 
 <p align="center" width="100%">
-    <img width="33%" <img size=50 src="https://files.catbox.moe/2rkel2.png">
+    <img width="33%" <img size=50 src="https://files.catbox.moe/04fun2.png">
 </p>
 
 
