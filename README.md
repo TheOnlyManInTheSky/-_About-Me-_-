@@ -4,7 +4,10 @@
     <img width="33%" <img size=50 src="https://files.catbox.moe/4ykr2a.webp">
 </p>
 
-
+<p>
+    <img src="https://files.catbox.moe/4ykr2a.webp" >
+    <img src="https://files.catbox.moe/f51ae4.webp" >
+</p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+Australia+VIC+WA+NT+Hand+Guides&pause=1000&color=860711&repeat=false&width=435&lines="No+YOU+are+all+heroes+today,+haha!%22)](https://git.io/typing-svg)
 
