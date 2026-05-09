@@ -56,8 +56,10 @@ bioshock , The Boys , Invincible
 Roblox , Art and Design.
 </p>
 
+<p align="center">
 sign the guest book!
-
+  </a>
+  
 <p align="center">
   <a href="https://onlymaninthesky.atabook.org">
     <span style="font-size:30px;"><b>ata</b></span>
