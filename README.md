@@ -54,7 +54,10 @@ bioshock , The Boys , Invincible
 Roblox , Art and comics.
 </p>
 
-![Image Alt](https://files.catbox.moe/04fun2.png)
+<p align="center" width="100%">
+    <img width="33%" <img size=50 src="![Image Alt](https://files.catbox.moe/tsh862.png)>
+</p>
+
 
 <p align="center">
 sign the guest book!
