@@ -3,6 +3,6 @@
 <p align="center">
 ' ' Howdy! i'm john , a homelander fictkin! ' '
 </p>
-![](https://files.catbox.moe/m261wg.gif) 
+![Alt](https://files.catbox.moe/m261wg.gif) 
 
 ![Image Alt](https://private-user-images.githubusercontent.com/282679900/589810395-183fe781-6329-441e-80cc-e0fde7af530e.png?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzgyNzU3OTUsIm5iZiI6MTc3ODI3NTQ5NSwicGF0aCI6Ii8yODI2Nzk5MDAvNTg5ODEwMzk1LTE4M2ZlNzgxLTYzMjktNDQxZS04MGNjLWUwZmRlN2FmNTMwZS5wbmc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTA4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUwOFQyMTI0NTVaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1mZTAxMGUyY2QyNDRkNDU4ZjEyM2UxZjU1NjU1NjVjMmIzZGYzNjdiMjJhMjNkOTlhYjdkZjNlZTRlMTE3ZTFkJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZwbmcifQ.SGRKtp7MUCfga8252pH2xoj7oIq7pbJo8hR_v3BNrcs)
