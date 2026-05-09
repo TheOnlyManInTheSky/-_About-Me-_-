@@ -2,11 +2,11 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Edu+Australia+VIC+WA+NT+Hand+Guides&pause=1000&color=860711&repeat=false&width=435&lines="No+YOU+are+all+heroes+today,+haha!%22)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="180" height="49" src="https://files.catbox.moe/ehp9bs.gif) 
+  <img width="180" height="49" src="![Image Alt](https://files.catbox.moe/ehp9bs.gif) ) 
 ">
 </p>
 
-![Image Alt](https://files.catbox.moe/ehp9bs.gif) 
+
 
 
 <p align="center">
