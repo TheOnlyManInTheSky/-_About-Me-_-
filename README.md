@@ -29,6 +29,17 @@
 <p align="center">
 i have anger issues, be mindful.
 </p>
-
+<p align="center">
+    ──── ⋆ ────
+</p>
+<p align="center">
+my interests consist of ->
+</p>
+<p align="center">
+bioshock , The Boys , Invincible
+</p>
+<p align="center">
+Roblox , Art and Design.
+</p>
 ![Image Alt](https://files.catbox.moe/12dree.png)
 
