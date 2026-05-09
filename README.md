@@ -4,7 +4,6 @@
  <img src="https://files.catbox.moe/7jfehf.gif"/> <p align="center">
 <img src="https://komarev.com/ghpvc/?username=TheOnlyManInTheSky&style=plastic&label=HOME+TEAMERS&color=B31942">  
 </p>
- <img src="https://files.catbox.moe/rz4ll0.gif"/> </p>
 
 
 <p align="center">
