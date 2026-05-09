@@ -65,9 +65,6 @@ sign the guest book!
     <span style="font-size:30px;"><b>"Yummers"</b></span>
   </a>
 
-<p align="center" width="100%">
-    <img width="33%" <img size=50 src="![Image Alt](https://files.catbox.moe/tsh862.png)>
-</p>
 
 
 ![Image Alt](https://files.catbox.moe/12dree.png)
