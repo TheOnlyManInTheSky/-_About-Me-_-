@@ -70,6 +70,5 @@ sign the guest book!
 </p>
 
 
-
 ![Image Alt](https://files.catbox.moe/12dree.png)
 
